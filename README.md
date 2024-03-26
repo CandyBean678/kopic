@@ -1,8 +1,11 @@
 # kopic
 gjhg
+jhj
+ghgh
+bn
+jgu
+9
 8
-nj
-uhk
-54
+kbb
+dz
 -
-njku
